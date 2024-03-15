@@ -1,0 +1,1 @@
+Due a heavy schedule at work this week most of this project was done in one afternoon. I found the hole thing challenging and will need to go back  when things are less hectic to re do this section and realy understand and master it.
